@@ -1,5 +1,14 @@
 ### Hi there 👋
 
+- 🔭 无业游民
+- 🌱 
+- 👯
+- 🤔 
+- 💬 
+- 📫 
+- 😄 
+- ⚡ 
+
 <!--
 **yanxin152133/yanxin152133** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
